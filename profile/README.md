@@ -24,7 +24,7 @@ If you're interested in joining our community 🤝, please don't hesitate to rea
 
 ## Contact Us 📩
 
-You can reach us through our GitHub page 💻, or by email at bromuno@example.com 📧. We look forward to hearing from you! 🤗
+You can reach us through our GitHub page 💻, or by email at bromunobase1@gmail.com 📧. We look forward to hearing from you! 🤗
 
 
 <!--
